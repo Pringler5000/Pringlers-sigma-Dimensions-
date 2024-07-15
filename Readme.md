@@ -1,3 +1,3 @@
-This is my first Dimension and its not that good or long
-I WILL UPDATE IT IN THE FUTURE
+Hey
 Hope you enjoy
+My dimensions 
